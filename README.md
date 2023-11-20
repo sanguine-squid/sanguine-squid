@@ -73,7 +73,7 @@ Ice Nine Kills, Ghost, Apocalyptica, Rob Zombie, poolcore, indoor waterparks, po
 
 💉 I curse... a lot.  I also use emotes (like :3c :0 :D :) ) and LMAO a lot.  If this bothers you idk don't talk to me.
 
-💉 I curse... a lot.  I also use emotes (like :3c :0 :D :) ) and LMAO a lot.  If this bothers you idk don't talk to me.
+💉 I may be a bit shy at first, I promise its nothing bad im just awkward LMAO
 
 💉 I hide people casually! Usually its nothing bad, you're either part of a fandom I don't like or are standing in front of someone I'm talking too.  Don't send your friends after me asking why I hid you, I'll hide them too.
 
