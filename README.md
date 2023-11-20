@@ -1,5 +1,5 @@
 <h1 align="center"> 
-     💉 ITS JUST ONE OF THOSE DAYS WHERE YOURE SO GLAD TO WAKE UP EVERYTHING IS LOVED EVERYBODY HUGS! (HUGE WIP) 💉
+     💉 ITS JUST ONE OF THOSE DAYS WHERE YOURE SO GLAD TO WAKE UP EVERYTHING IS LOVED EVERYBODY HUGS! (WIP) 💉
 </h1> 
 
 <div align="center">
@@ -47,6 +47,8 @@
  🌙 **idle** : Offtab/Drawing
 
  ⛔ **busy** : Leave me alone please!
+
+ 💉 My main PT skin is usually Dedf1sh, however I have lots of other cosplays and OCs!  When I'm not Dedf1sh I'm usually one of my main or secondary sonas! 💉
 
 
 </div>
