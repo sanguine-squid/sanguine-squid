@@ -73,19 +73,28 @@ Ice Nine Kills, Ghost, Apocalyptica, Rob Zombie, poolcore, indoor waterparks, po
 
 💉 I curse... a lot.  I also use emotes (like :3c :0 :D :) ) and LMAO a lot.  If this bothers you idk don't talk to me.
 
+💉 I curse... a lot.  I also use emotes (like :3c :0 :D :) ) and LMAO a lot.  If this bothers you idk don't talk to me.
+
 💉 I hide people casually! Usually its nothing bad, you're either part of a fandom I don't like or are standing in front of someone I'm talking too.  Don't send your friends after me asking why I hid you, I'll hide them too.
 
 💉 I'm also very autistic about Dedf1sh, as I said before I selfship with them!  I do my best to be respectful of kins and alters (I recognize you are seperate from your source :D) but if this ever makes you uncomfortable please let me know! Also unrelated but I use they/them pronouns for Dedf1sh and I would appreciate if you did too when talking to me (not a requirement tho you're allowed to have your own hcs, I also love hearing other's interpretations of F1shie!!).
+
+💉 Just as a general thing if I ever say anything that makes you uncomfortable, please let me know!
 
 </div>
 
 <h1 align="center"> 
      💉 DNI 💉
 </h1> 
-💉 MINORS!!! MINORS FUCK OFF IM NOT COMFORTABLE INTERACTING WITH YOU
+💉 <b>MINORS!!!</b> MINORS FUCK OFF IM NOT COMFORTABLE INTERACTING WITH YOU
+
 
 💉 Basic DNI criteria
 
 💉 PROSHIPPERS ESP FUCK OFF I HATE YALL
 
 💉 Anti-furry, anti-selfship, anti-therian, anti-kink
+
+💉 Calf1sh shippers (mainly the ones who just use F1sh as ship filler and don't actually care about them as a character)
+
+💉 No Straight Roads fans (UNLESS WE ARE FRIENDS ALREADY)
