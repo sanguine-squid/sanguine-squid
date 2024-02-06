@@ -94,8 +94,11 @@ Ice Nine Kills, Ghost, Apocalyptica, Rob Zombie, poolcore, indoor waterparks, po
 </h1> 
 💉 <b>MINORS!!!</b> MINORS FUCK OFF IM NOT COMFORTABLE INTERACTING WITH YOU
 
+</div>
 
 💉 Basic DNI criteria
+
+💉 Zionists and Zionist supporters. From the river to the sea, Palestine will be free! (This includes vivziepop fans, she's a zionist <3)
 
 💉 PROSHIPPERS ESP FUCK OFF I HATE YALL
 
