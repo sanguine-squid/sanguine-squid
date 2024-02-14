@@ -102,6 +102,8 @@ Ice Nine Kills, Ghost, Apocalyptica, Rob Zombie, poolcore, indoor waterparks, po
 
 💉 PROSHIPPERS ESP FUCK OFF I HATE YALL
 
+💉 V0RE ENJOYERS GET OUT!!! (I do not give a fuck if it's "sfw", there's no such thing as a sfw kink, stop lying to yourself.)
+
 💉 Anti-furry, anti-selfship, anti-therian, anti-kink
 
 💉 Calf1sh shippers (mainly the ones who just use F1sh as ship filler and don't actually care about them as a character)
