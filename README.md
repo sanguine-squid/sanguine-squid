@@ -109,5 +109,3 @@ Ice Nine Kills, Ghost, Apocalyptica, Rob Zombie, poolcore, indoor waterparks, po
 💉 Calf1sh shippers (mainly the ones who just use F1sh as ship filler and don't actually care about them as a character)
 
 💉 No Straight Roads fans (UNLESS WE ARE FRIENDS ALREADY)
-
-💉 Hazbin Hotel / Helluva Boss / Vivziepop fans (I don't hate Vivzie persay, but considering the amount of drama around her name (true or false) I would prefer to avoid her work.  I don't like her vibes.)
