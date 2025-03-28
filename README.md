@@ -21,7 +21,7 @@
    
 💉 ACE/WOLF/SANGUINE/CALICO 💉
     
-💉 THEY/SHE 💉 21 Y/O 💉
+💉 THEY/SHE 💉 22 Y/O 💉
 
 💉 ARTIST OF MANY MEDIUMS 💉 FURRY 💉 THERIAN 💉 METALHEAD 💉 DEDF1SH SELFSHIPPER 💉 CHRONICALLY SILLY 💉
 
@@ -75,7 +75,7 @@ Ice Nine Kills, Ghost, Apocalyptica, Rob Zombie, poolcore, indoor waterparks, po
 
 💉 I curse... a lot.  I also use emotes (like :3c :0 :D :) ) and LMAO a lot.  If this bothers you idk don't talk to me.
 
-💉 When I'm in a dedf1sh skin please don't come up and kiss me.  Boops and such are fine but no kisses please.
+💉 Please don't come up and kiss me.  Boops and such are fine but no kisses please.
 
 💉 I talk openly about sexual content and kink a lot! I usually ask first but still if you ever feel uncomfortable with that kind of talk, please let me know!
 
