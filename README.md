@@ -48,7 +48,7 @@
 
  ⛔ **busy** : Leave me alone please!
 
- 💉 My main PT skin is usually Dedf1sh, however I have lots of other cosplays and OCs!  When I'm not Dedf1sh I'm usually one of my main or secondary sonas! 💉
+ 💉 My main skins are either Dedf1sh/Acht (Splatoon), my sona (Sonne), Roodaka (Bionicle), or Vakama Hordika (Bionicle), however I have lots of other cosplays and OCs! 💉
 
 
 </div>
@@ -59,11 +59,11 @@
 <div align="center">
 <b>Special Interests</b>
   
-<b>Powerwolf, Splatoon/Splatbands,</b> heavy metal, Pokemon, sewing, plushies, fursuit making, animation, Sabaton, creepy safety signs, OC making/character design, cats, dragons, Littlest Pet Shop
+<b>Powerwolf, Bionicle, Splatoon/Splatbands,</b> heavy metal, Pokemon, sewing, plushies, fursuit making, animation, Sabaton, OC making/character design, cats, dragons, severe weather
 </div>
 <b>General Interests</b>
 
-Ice Nine Kills, Ghost, Apocalyptica, Rob Zombie, poolcore, indoor waterparks, pool toys, FNaF, analog horror, Build a Bear, radiation/radioactivity, drag, clowns
+Ice Nine Kills, Ghost, Apocalyptica, Rob Zombie, poolcore, indoor waterparks, pool toys, Zbrush, Maya, FNaF, analog horror, Build a Bear, radiation/radioactivity, drag, clowns, creepy safety signs, Littlest Pet Shop
 
 </div>
 
