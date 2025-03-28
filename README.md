@@ -48,7 +48,7 @@
 
  ⛔ **busy** : Leave me alone please!
 
- 💉 My main skins are either Dedf1sh/Acht (Splatoon), my sona (Sonne), Roodaka (Bionicle), or Vakama Hordika (Bionicle), however I have lots of other cosplays and OCs! 💉
+ 💉 My main skins are either Dedf1sh/Acht (Splatoon), Sonne (my sona), Roodaka (Bionicle), or Vakama Hordika (Bionicle), however I have lots of other cosplays and OCs! 💉
 
 
 </div>
