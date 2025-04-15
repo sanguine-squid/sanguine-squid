@@ -70,8 +70,7 @@ Ice Nine Kills, Ghost, Apocalyptica, Rob Zombie, poolcore, indoor waterparks, po
 <h1 align="center"> 
      💉 BYI 💉
 </h1> 
-💉 I tend to get super excited when I see someone who has the same interests as me, especially when it's a special interest!  If you see one in common with me please come talk to me about it!! I may be a bit shy at first but the second you mention something I'm super autistic for I will be so happy.
-
+💉 I tend to get super excited when I see someone who has the same interests as me, especially when it's a special interest!  If you see one in common with me please come talk to me about it!! I may be a bit shy at first but the second you mention something I'm super autistic for I will be so happy. </div>
 
 💉 I curse... a lot.  I also use emotes (like :3c :0 :D :) ) and LMAO a lot.  If this bothers you idk don't talk to me.
 
@@ -98,9 +97,9 @@ Ice Nine Kills, Ghost, Apocalyptica, Rob Zombie, poolcore, indoor waterparks, po
 
 💉 Basic DNI criteria
 
-💉 Zionists and Zionist supporters. From the river to the sea, Palestine will be free! (This includes vivziepop fans, she's a zionist <3)
+💉 Zionists and Zionist supporters
 
-💉 PROSHIPPERS ESP FUCK OFF I HATE YALL
+💉 PROSHIPPERS
 
 💉 V0RE ENJOYERS GET OUT!!! (I do not give a fuck if it's "sfw", there's no such thing as a sfw kink, stop lying to yourself.)
 
