@@ -48,6 +48,8 @@
 
  ⛔ **busy** : Leave me alone please!
 
+ 💉 I mostly just peoplewatch on PT, I'm a huge lurker 💉
+
  💉 My main skins are either Dedf1sh/Acht (Splatoon), Sonne (my sona), Roodaka (Bionicle), or Vakama Hordika (Bionicle), however I have lots of other cosplays and OCs! 💉
 
 
@@ -57,13 +59,36 @@
    💉 INTERESTS 💉 
 </h1> 
 <div align="center">
-<b>Special Interests</b>
-  
-<b>Powerwolf, Bionicle, Splatoon/Splatbands,</b> heavy metal, Pokemon, sewing, plushies, fursuit making, animation, Sabaton, OC making/character design, cats, dragons, severe weather
-</div>
-<b>General Interests</b>
+     
+💉 <b>POWERWOLF!!! ASK ME ABOUT POWERWOLF I LOVE THEM!!!</b>
 
-Ice Nine Kills, Ghost, Apocalyptica, Rob Zombie, poolcore, indoor waterparks, pool toys, Zbrush, Maya, FNaF, analog horror, Build a Bear, radiation/radioactivity, drag, clowns, creepy safety signs, Littlest Pet Shop
+💉 <b>BIONICLE!!</b>
+
+💉 <b>SPLATOON/SPLATBANDS</b>
+
+💉 Pokemon
+
+💉 Other metal bands (Sabaton, Tardigrade Inferno, Diablo Swing Orchestra, Ice Nine Kills, Rob Zombie)
+
+💉 Minecraft
+
+💉 Littlest Pet Shop
+
+💉 Dragons!!
+
+💉 Sewing
+
+💉 Plushies
+
+💉 Fursuits/fursuit making
+
+💉 3d modelling
+
+💉 Severe weather
+
+💉 Pool toys!
+
+💉 Poolcore in general
 
 </div>
 
@@ -92,8 +117,6 @@ Ice Nine Kills, Ghost, Apocalyptica, Rob Zombie, poolcore, indoor waterparks, po
      💉 DNI 💉
 </h1> 
 💉 <b>MINORS!!!</b> MINORS FUCK OFF IM NOT COMFORTABLE INTERACTING WITH YOU
-
-</div>
 
 💉 Basic DNI criteria
 
